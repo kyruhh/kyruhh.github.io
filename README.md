@@ -15,3 +15,6 @@ To put it simply, (Taylor's Version) is all about Taylor Swift taking back owner
 She created 10 Albums which she calls *Eras*. These 10 eras are basically Debut, Fearless, Speak Now, Red, 1989, Reputation, Lover, Folklore, Evermore, and lastly, Midnights. She has this show called The Eras Tour, which started at Glendale, Arizona, at March 17, 2023. At this show, she performs songs from all of the 10 eras.
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qdk01wkzKzo?si=WgxFb78YD51iznW6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+# The Eras Tour Movie
+She released minimal international dates for The Eras Tour. Because of this, International Swifties are devastated since they won't get a chance to see Taylor and watch her show. Because of this, she thought about releasing The Eras Tour Movie worldwide so that everyone can enjoy. She released the movie last October 13, 2023 on all cinemas.
+![Eras Tour Movie Poster](https://i.ytimg.com/vi/KudedLV0tP0/maxresdefault.jpg)
