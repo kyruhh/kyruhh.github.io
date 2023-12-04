@@ -20,6 +20,8 @@ The tour had a significant cultural, economic and political impact, evident in t
 
 Swift announced and released various works during the tour: extended editions of Midnights, the re-recorded albums Speak Now (Taylor's Version) and 1989 (Taylor's Version), the music videos for "Karma" and "I Can See You", and "Cruel Summer" as a single. An accompanying concert film was released to theaters worldwide on October 13, 2023, and became the highest-grossing concert film in history.
 
+![1989 Taylor's Version](https://media.cnn.com/api/v1/images/stellar/prod/231026141428-02-1989-taylors-version-announcement-0809.jpg?c=original)
+
 ### The Eras Tour Movie
 She released minimal international dates for The Eras Tour. Because of this, International Swifties are devastated since they won't get a chance to see Taylor and watch her show. Because of this, she thought about releasing The Eras Tour Movie worldwide so that everyone can enjoy. She released the movie last October 13, 2023 on all cinemas.
 ![Eras Tour Movie Poster](https://i.ytimg.com/vi/KudedLV0tP0/maxresdefault.jpg)
