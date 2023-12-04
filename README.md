@@ -4,7 +4,7 @@ Kyra Angeline A. Embestro
 # The Music Industry, Taylor Alison Swift
 ![Taylor Swift](https://media-cldnry.s-nbcnews.com/image/upload/t_fit-1500w,f_auto,q_auto:best/rockcms/2023-06/230625-taylor-swift-jm-1236-4fb80d.jpg)
 
-Taylor Alison Swift, also known as Taylor Swift, is a 33-year old singer who was born at December 13, 2023. She started her music career at the young age of 16, when she released her very first album called [Debut](https://open.spotify.com/album/5eyZZoQEFQWRHkV2xgAeBw?si=sn_EPjX2TrmWWWldPfHB6g), which was released at October 24, 2006. 
+Taylor Alison Swift, also known as Taylor Swift, is a 33-year old singer who was born at December 13, 1989. She started her music career at the young age of 16, when she released her very first album called [Debut](https://open.spotify.com/album/5eyZZoQEFQWRHkV2xgAeBw?si=sn_EPjX2TrmWWWldPfHB6g), which was released at October 24, 2006. 
 
 ### Taylor's Version Concept, Explained
 
